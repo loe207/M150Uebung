@@ -1,1 +1,1 @@
-Ursin ist toll
+Ursin ist nicht toll
